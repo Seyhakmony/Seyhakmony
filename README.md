@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on course and side projects<br>I'm currently a Senior majoring in Computer Science at the University of North Florida<br>
+I'm currently a Senior majoring in Computer Science at the University of North Florida<br>
 
 
 ## 🌐 Socials:
