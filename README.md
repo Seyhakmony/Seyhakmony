@@ -1,5 +1,5 @@
 # 💫 About Me:
-Graduated in Computer Science at the University of North Florida<br>
+Computer Science Graduate from the University of North Florida<br>
 
 
 ## 🌐 Socials:
